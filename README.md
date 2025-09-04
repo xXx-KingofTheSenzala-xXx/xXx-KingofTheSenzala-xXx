@@ -5,6 +5,7 @@
 - 📫 How to reach me chama no zap bb
 - 😄 Pronouns: pre/to
 - ⚡ Fun fact: adoro mulheres brancas
+- e tmb estou devendo 10.000 dolares em uma mulher do filme as branquelas
 
 <!---
 xXx-KingofTheSenzala-xXx/xXx-KingofTheSenzala-xXx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
